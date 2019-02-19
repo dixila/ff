@@ -1,5 +1,4 @@
 literacy applaud barren persecute gasp proof exceed varnish flutter radius.
-
 woman tissue chapter magnitude slump slight asset capsule stun cliff.
 
 penguin erupt medieval bless virgin dwell hnob mingle analogy trifle.
